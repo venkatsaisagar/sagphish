@@ -2,8 +2,8 @@
 A MODERN PHISHING TOOL FOR SOCIAL ACCOUNTS
 
 # install
-this tool is will work for any social accounts and this tool is not free 
-100₹ to own this tool/method
+this tool will work for any social media accounts.  this tool is not free 
+cost of this tool is 100₹
 
 for further process mail me at 
 ## venkatsaisagar.github@gmail.com
